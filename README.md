@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and playing game
 - 🌱 I’m currently learning Information System at BahirDar University BiT campus
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me woth E-mail : awolmohammed214@gmail.com or telegram(recommeded) (+251938966665)
+- 📫 How to reach me with E-mail : awolmohammed214@gmail.com or telegram(recommeded) (+251938966665)
 - 😄 Pronouns: Mr.
 - ⚡ Fun fact: changing bad situations to good ones.
 
